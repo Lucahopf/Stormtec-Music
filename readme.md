@@ -8,7 +8,7 @@ Hier kannst du sehen was ich sonst so tue wenn ich nicht auf github unterwegs bi
 - ❌ Dragonborn 🐉 mit Orange Heart 🧡 
 - ❌ Kraftsport 🏋️‍♀️, Harder Stylez DJ
 - ❌ Singer/Songwriter 🎤, Fotoartist 📸
-- ❌ sometimes Live ->
+- ❌ sometimes Live -> twitch.tv/stormtecmusic
 
 an sich ist Programmieren nicht so mein fall weshalb ich es auch gen den AE's überlasse,
 ABER vielleicht postiere ich hier doch mal was wer weiss.
